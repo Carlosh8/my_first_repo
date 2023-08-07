@@ -4,3 +4,7 @@ First training
 Carlos Molina
 
 Student
+
+12/04/1996
+
+Rio de Janeiro
